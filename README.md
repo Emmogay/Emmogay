@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Emmogay
-- 👀 I’m interested in Mans Dicks
-- 🌱 I’m currently learning 
+- 👀 I’m interested in Mans 
+- i'm a gay
+- maybe i'm a boy 
 
 
 <!---
